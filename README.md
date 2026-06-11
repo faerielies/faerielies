@@ -1,5 +1,5 @@
-⚠️⚠️⚠️WARNING⚠️⚠️⚠️
+mark: what level are you
 
-**i will use she/her on millennial tree & wind archer** ^w^
+beasts: like aura level or what
 
-dont like tis???? the hide/block button exists😳
+ancients: INFINITE LEVELS🤣🤣🤣🤣🤣🤣🤣🤣beasts are BUMS🤣
