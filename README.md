@@ -4,4 +4,4 @@ beasts: like aura level or what
 
 ancients: INFINITE LEVELS🤣🤣🤣🤣🤣🤣🤣🤣beasts are BUMS🤣
 
-guys i love everyone equally but faefae has my love centered towards him ok💗💗💗
+guys i love everyone equally but faefae and surya has my love centered towards them ok💗💗💗
